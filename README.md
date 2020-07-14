@@ -1,2 +1,2 @@
 Contact me.
-You can have a free licence.
+You can have a licence for many cases.
